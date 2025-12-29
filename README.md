@@ -19,7 +19,7 @@ I'm a **Business Analyst** with 5+ years of experience transforming data into ac
 
 📍 **Location:** Boston, MA  
 📧 **Contact:** moteaditya3124@gmail.com  
-📱 **Phone:** +1 (857) 277-2529
+📱 **Phone:** +1 (857) 277-2539
 
 ---
 
